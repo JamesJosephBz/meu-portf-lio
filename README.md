@@ -14,3 +14,4 @@ Este repositório será utilizado para armazenar meus projetos e códigos enquan
 ##  Contato
 Se quiser me encontrar:
 - **E-mail:** [jamessonjoseph@outlook.com]
+- **Telefone:** [11971627427]
